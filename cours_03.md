@@ -21,7 +21,7 @@ Il y a plusieurs emplois qui m'intéressent. Alors, voici deux d’emplois qui m
 
 
 ### Identification
-Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
+
 Je ne vois pas moi-même une entreprise ou un artiste. Dans d’autres mots, je ne m’identifie pas par des compagnies et d’autres personnes. Cependant, je pourrais dire que je m’inspire d’un thème d’art et celui-ci est du surréalisme. Un artiste contemporain, dans ce thème d’art, qui me passionne est Michael Vincent Manalo. Le surréalisme m’a toujours attiré dans le domaine des arts avec des éléments qui ne suivent pas la norme puis rend le message plus de valeur. Les réalisations de cet artiste taïwanais project ces éléments par perfections.
 
 *Des exemples de ses eouvres seront dans le powerpoints*
