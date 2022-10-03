@@ -12,9 +12,9 @@ Les deux points forts de ma présentation sont :
 Quelques points à améliorer de ma présentation sont : 
 1. Le volume 
 2. La gestion du temps
-3. La réalisation du powerpoint
+3. La réalisation du powerpoint (images)
 Ceci étant dit, je devrais parler plus fort puisque le local est très grand et aux gens en arrière.
-Je devrais parler plus lentement, mais mettre plus d’informations. En résultat, je devrais au moins passer le temps demander (le  minimum). Finalement, je dois bien organiser mon support visuel, car je trouve que celui-ci n’a pas suivi l’exemple d'alignement.
+Je devrais parler plus lentement, mais mettre plus d’informations. En résultat, je devrais au moins passer le temps demander (le  minimum). Finalement, je dois bien organiser mon support visuel, car je trouve que celui-ci n’a pas suivi l’exemple d'alignement et peu attirant (peu d'images).
 
 
 ### Présentation préférée
